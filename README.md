@@ -9,6 +9,6 @@
 - 📃 learning & using LaTeX 
 
 ## 👤 Positions
-- Vice President of the [Neoul](https://www.instagram.com/snu_neoul/), in SNU College of Humanities
-- Foreman of SNU [Linguistics Supporters](https://www.instagram.com/snu_linguistics/)
+- the 3rd Vice President of the [Neoul](https://www.instagram.com/snu_neoul/), in SNU College of Humanities
+- the 2nd Foreman of SNU [Linguistics Supporters](https://www.instagram.com/snu_linguistics/)
 - Former Keyboardist for SNU Linguistics Band [Signifiant & Signifié](https://www.instagram.com/band._.gigi/) 
